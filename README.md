@@ -7,6 +7,8 @@
 **Период данных:** 01.01.2022 – 17.02.2022
 
 <img width="1537" height="862" alt="image" src="https://github.com/user-attachments/assets/6426519d-f335-4b75-9314-c3e9b57b908a" />
+
+
 <img width="1534" height="865" alt="image" src="https://github.com/user-attachments/assets/290bcc6a-f63c-4d00-b26d-3b97f96c6e98" />
 
 ## Бизнес-вопросы и ответы
